@@ -1,0 +1,1 @@
+# Koncepacja-AI-zamka-jasnowidza.-
